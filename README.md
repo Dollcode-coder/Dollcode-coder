@@ -42,7 +42,7 @@ Let’s connect and build something impactful together! 🚀
 I'm always excited to collaborate, brainstorm new ideas, or just chat about all things data! Feel free to reach out—whether you're a fellow data enthusiast, recruiter, or collaborator.
 
 📧 Email: [dorothyawino123@gmail.com](mailto:dorothyawino123@gmail.com)  
-🔗 LinkedIn: [linkedin.com/in/dorothy-otieno](https://linkedin.com/in/dorothy-otieno)
+🔗 LinkedIn: [linkedin.com/in/dorothy-otieno](https://linkedin.com/in/dorothy-otieno-3899b3334)
 
 ---
 
